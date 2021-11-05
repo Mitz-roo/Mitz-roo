@@ -1,0 +1,5 @@
+- Heya I’m @Mitz-roo, call me Mitz
+- Just here for fun
+- Just an artist
+- I know nothing about coding yet
+- A minor
